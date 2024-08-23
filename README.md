@@ -1,1 +1,2 @@
-# AAAA
+# discord.gg/synz
+discord.gg/synz
